@@ -1,1 +1,0 @@
-# teste2022testejunkor20wtg
